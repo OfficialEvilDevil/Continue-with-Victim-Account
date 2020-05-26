@@ -1,5 +1,5 @@
 # Continue-with-Victim-Account
-Best Social Media Account Hacking Techinques
+Best Social Media Account Hacking Techinques if you used this tool then you can Hack any scoial media hack and this is just educational purpose only
 
 
 ## This Tool Supported :
@@ -24,8 +24,8 @@ Please Subscribe My Youytube Channel:
 Dont Forget to Share this Tutorial `<https://youtu.be/I2AgiLdrGxU>` https://youtu.be/I2AgiLdrGxU
 
 ```
-This Channel DOES NOT Promote or encourage Any illegal activities , 
-all contents provided by This Channel is meant for EDUCATIONAL PURPOSE only .  
+This Github tool/page DOES NOT Promote or encourage Any illegal activities , 
+all contents provided by This Github tool/page is meant for EDUCATIONAL PURPOSE only .  
 ```
 [Watch Tutorial on Youtube](https://youtu.be/26U682Wh9LE)
 
